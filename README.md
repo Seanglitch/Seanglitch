@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Seanglitch
+- 👋 Hi, I’m @Seanglitch But You Can Call Me Sean.
 - 👀 I’m interested in web devlopment
 - 🌱 I’m currently learning HTML
 - 📫 How to reach me My E-Mail seana@mailfence.com

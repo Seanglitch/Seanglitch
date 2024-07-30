@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Seanglitch
+- 👀 I’m interested in web devlopment
+- 🌱 I’m currently learning HTML
+- 📫 How to reach me My E-Mail -seana@mailfence.com
+- 😄 Pronouns:he,him
+- ⚡ Fun fact:I like jupiter
